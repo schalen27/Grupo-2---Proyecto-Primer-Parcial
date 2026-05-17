@@ -1,1 +1,0 @@
-# Grupo-2---Proyecto-Primer-Parcial
